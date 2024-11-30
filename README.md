@@ -11,7 +11,7 @@ Nothing can be yours forever, secured on the blockchain as surely as if you had 
 Messaging
 =========
 
-#nft #drop #art #og #nothing #consumerism
+#nft #timed #open #edition #drop #art #og #nothing #consumerism
 
 1
 -----
